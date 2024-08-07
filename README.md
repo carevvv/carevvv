@@ -5,7 +5,7 @@
 **hi there**  
 
 • **telegram:** [@oslik_ryn](https://t.me/oslik_ryn)  
-• **discord:** *carevv*  
+• **discord:** *carevvv*  
 • **email:** [igorcarev146@gmail.com](mailto:igorcarev146@gmail.com)  
 
 🕛 *don't write after 10 - mom takes the computer*  
