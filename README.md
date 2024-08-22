@@ -4,7 +4,7 @@
   
 **hi there**  
 
-• **telegram:** [@oslik_ryn](https://t.me/oslik_ryn)  
+• **telegram:** [@carevvv](https://t.me/carevvv)
 • **discord:** *carevvv*  
 • **email:** [igorcarev146@gmail.com](mailto:igorcarev146@gmail.com)  
 
