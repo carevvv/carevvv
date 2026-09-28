@@ -7,6 +7,7 @@
 • **telegram:** [@carevvv](https://t.me/carevvv)  
 • **discord:** *carevvv*  
 • **email:** [igorcarev146@gmail.com](mailto:igorcarev146@gmail.com)  
+• **resume:** [tsarev-cv.pdf](tsarev-cv.pdf)  
 
 🕛 *don't write after 10 - mom takes the computer*  
 
